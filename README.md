@@ -74,146 +74,145 @@ Demonstra-se que as Escrituras são a Palavra de Deus - pela majestade e pureza 
 `Os. 8:12; 1 Cor. 2:6-7; Sal. 119:18, 129, 140; Sal. 12:6; Luc. 24:27; At. 10:43 e 26;22; Rom, 16:25-27; At. 28:28; Heb. 4:12; Tiago 1:18; Sal. 19:7-9; Rom. 15:4: At 20:32; João 16:13-14.`
 
 
-
 ---
-5. Que é o que as Escrituras principalmente ensinam?
+## 5. Que é o que as Escrituras principalmente ensinam?
 
 As Escrituras ensinam principalmente o que o homem deve crer acerca de Deus e o dever que Deus requer do homem.
 
-João 20:31; 11 Tim. 1:13.
+`João 20:31; 11 Tim. 1:13.`
 
 ---
-6. Que revelam as Escrituras acerca de Deus?
+## 6. Que revelam as Escrituras acerca de Deus?
 
 As Escrituras revelam o que Deus é, quantas pessoas há na Divindade, os seus decretos e como Ele os executa.
 
-Mas. 3:16-17; Isa. 46:9-10; At. 4:27-28,
+`Mas. 3:16-17; Isa. 46:9-10; At. 4:27-28,`
 
 ---
-7. Quem é Deus?
+## 7. Quem é Deus?
 
 Deus é espírito, em si e por si infinito em seu ser, glória, bem-aventurança e perfeição; todo - suficiente, eterno, imutável, insondável, onipresente, infinito em poder, sabedoria, santidade, justiça, misericórdia e clemência, longânimo e cheio de bondade e verdade.
 
-João 4:24; Exo. 3:14; Job. 11:7-9; At. 5:2; I Tim. 6:15; Mat. 5:48; Rom. 11:35-36 Sal. 90:2 -145:3 e 139:1, 2, 7; Mal. 2:6; Apoc. 4:8; Heb. 4:13; Rom. 16:27; Isa. 6:3; Deut. 32:4; Exo. 34:6.
+`João 4:24; Exo. 3:14; Job. 11:7-9; At. 5:2; I Tim. 6:15; Mat. 5:48; Rom. 11:35-36 Sal. 90:2 -145:3 e 139:1, 2, 7; Mal. 2:6; Apoc. 4:8; Heb. 4:13; Rom. 16:27; Isa. 6:3; Deut. 32:4; Exo. 34:6.`
 
 ---
-8. Há mais que um Deus?
+## 8. Há mais que um Deus?
 
 Há um só Deus, o Deus vivo e verdadeiro.
 
-Deut. 6:4: Jer. 10:10; 1 Cor. 8:4.
+`Deut. 6:4: Jer. 10:10; 1 Cor. 8:4.`
 
 ---
-9. Quantas pessoas há na Divindade?
+## 9. Quantas pessoas há na Divindade?
 
 Há três pessoas na Divindade: o Pai, o Filho e o Espírito Santo; estas três pessoas são um só Deus verdadeiro e eterno, da mesma substância, iguais em poder e glória, embora distintas pelas suas propriedades pessoais.
 
-Mat. 3:16-17, e 28:19; 11 Cor. 13:14; João 10:30.
+`Mat. 3:16-17, e 28:19; 11 Cor. 13:14; João 10:30.`
 
 ---
-10. Quais são as propriedades pessoais das três pessoas da Divindade?
+## 10. Quais são as propriedades pessoais das três pessoas da Divindade?
 
 O Pai gerou o Filho, o Filho foi gerado pelo Pai, e o Espírito Santo procede do Pai e do Filho, desde toda à eternidade.
 
-Heb. 1:5-6; João 1:14 e 15:26; Gal. 4:6.
+`Heb. 1:5-6; João 1:14 e 15:26; Gal. 4:6.`
 
 ---
-11. Donde se infere que o Filho e o Espírito Santo são Deus, iguais ao Pai?
+## 11. Donde se infere que o Filho e o Espírito Santo são Deus, iguais ao Pai?
 
 As Escrituras revelam que o Filho e o Espírito Santo são Deus igualmente com o Pai, atribuindo-lhes os mesmos nomes, atributos, obras e culto que só a Deus pertencem.
 
-Jer. 23:6; Isa. 6:3, 5, 8; João 12:41; At. 28:25; 1 João 5:20; Sal. 45:6; At. 5:3-4; João 1:1; Isa. 9:6; João 2:24-25; 1 Cor. 2:10-11; Col. 1:16; Gen. 1:2; Mat. 28:19; 11 Cor. 13:14.
+`Jer. 23:6; Isa. 6:3, 5, 8; João 12:41; At. 28:25; 1 João 5:20; Sal. 45:6; At. 5:3-4; João 1:1; Isa. 9:6; João 2:24-25; 1 Cor. 2:10-11; Col. 1:16; Gen. 1:2; Mat. 28:19; 11 Cor. 13:14.`
 
 ---
-12. Que são os decretos de Deus?
+## 12. Que são os decretos de Deus?
 
 Os decretos de Deus são os atos sábios, livres e santos do conselho da sua vontade, pelos quais, desde toda a eternidade, Ele, para a sua própria glória, imutavelmente predestinou tudo o que acontece, especialmente com referência aos anjos e ,os homens.
 
-Isa. 45:6-7; Ef. 1:11; Rom. 11:33; Sal. 33:11: Ef. 1:4; Rom. 9:22-23.
+`Isa. 45:6-7; Ef. 1:11; Rom. 11:33; Sal. 33:11: Ef. 1:4; Rom. 9:22-23.`
 
 ---
-13. Que decretou Deus especialmente com referência aos anjos e aos homens?
+## 13. Que decretou Deus especialmente com referência aos anjos e aos homens?
 
 Deus, por um decreto eterno e imutável, unicamente do seu amor e para patentear a sua gloriosa graça, que tinha de ser manifestada em tempo devido, elegeu alguns anjos para a glória, e, em Cristo, escolheu alguns homens para a vida eterna e os meios para consegui-la; e também, segundo o seu soberano poder e o conselho inescrutável da sua própria vontade (pela qual Ele concede, ou não, os seus favores conforme lhe apraz), deixou e predestinou os mais à desonra e à ira, que lhes serão infligidas por causa dos seus pecados, para patentear a glória da sua justiça.
 
-I Tim. 5:21; Ef. 2A0; II Tess. 2:13-14; 1 Pedro 1:2; Rom. 9:17-18, 21-22; Judas 4; Mat. 11:25-26.
+`I Tim. 5:21; Ef. 2A0; II Tess. 2:13-14; 1 Pedro 1:2; Rom. 9:17-18, 21-22; Judas 4; Mat. 11:25-26.`
 
 ---
-14. Como executa Deus os seus decretos?
+## 14. Como executa Deus os seus decretos?
 
 Deus executa os seus decretos nas obras da criação e da providência, segundo a sua presciência infalível e o livre e imutável conselho da rua vontade.
 
-Dan. 4:35; Ef. 1:11.
+`Dan. 4:35; Ef. 1:11.`
 
 ---
-15. Que é a obra da criação?
+## 15. Que é a obra da criação?
 
 A obra da criação é aquela pela qual Deus, pela palavra do seu poder, fez do nada o mundo, e tudo quanto nele há, para si no espaço de seis dias, e tudo muito bom.
 
-Gen. 1: Heb. 11:3; Apoc. 4:11; Rom. 11:36.
+`Gen. 1: Heb. 11:3; Apoc. 4:11; Rom. 11:36.`
 
 ---
-16. Como criou Deus os anjos?
+## 16. Como criou Deus os anjos?
 
 Deus criou todos os anjos como espíritos imortais, santos, poderosos e excelentes em conhecimento, para executarem os seus mandamentos e louvarem o seu nome, todavia sujeitos à mudança.
 
-Col. 1:16; Mat. 22:30; Luc. 20:36; Mat. 25:31, e 24:36; 1 Pedro 1:12; 11 Tess. 1:7, Sal. 91:11-12; Mat. 13:39; Sal. 103:20-21; 11 Pedro 2:4.
+`Col. 1:16; Mat. 22:30; Luc. 20:36; Mat. 25:31, e 24:36; 1 Pedro 1:12; 11 Tess. 1:7, Sal. 91:11-12; Mat. 13:39; Sal. 103:20-21; 11 Pedro 2:4.`
 
 ---
-17. Como criou Deus o homem?
+## 17. Como criou Deus o homem?
 
 Depois de ter feito todas as mais criaturas, Deus criou o homem, macho e fêmea; formou-o do pó, e a mulher da costela do homem; dotou-os de almas viventes, racionais e imortais; fê-los conforme a sua própria imagem, em conhecimento, retidão e santidade, tendo a lei de Deus escrita em seus corações e poder para a cumprir, com domínio sobre as criaturas, contudo sujeitos a cair.
 
-Gen. 1:7, e 2:7, 32 e 1:26; Mat. 19:4; Ecl. 12:9; Mat. 10:28; Col. 3:10; Ef. 4:24; Rom. 2:14-15; Gen. 3:6, e 1:28, 3:1-19.
+`Gen. 1:7, e 2:7, 32 e 1:26; Mat. 19:4; Ecl. 12:9; Mat. 10:28; Col. 3:10; Ef. 4:24; Rom. 2:14-15; Gen. 3:6, e 1:28, 3:1-19.`
 
 ---
-18. Quais são as obras da providência de Deus?
+## 18. Quais são as obras da providência de Deus?
 
 As obras da providência de Deus são a sua mui santa, sábia e poderosa maneira de preservar e governar todas as suas criaturas e todas as suas ações, para a sua própria glória.
 
-Lev. 21:8; Sal. 104:24: Isa. 92:29; Ne. 9:6; Heb. 1:3; Sal. 103:19; Mat. 10:29-30; Gen. 45:7; Rom. 11:36; Isa. 63:14.
+`Lev. 21:8; Sal. 104:24: Isa. 92:29; Ne. 9:6; Heb. 1:3; Sal. 103:19; Mat. 10:29-30; Gen. 45:7; Rom. 11:36; Isa. 63:14.`
 
 ---
-19. Qual é a providência de Deus para com os anjos?
+## 19. Qual é a providência de Deus para com os anjos?
 
 Deus, pela sua providência, permitiu que alguns dos anjos, voluntária e irremediavelmente, caíssem em pecado e perdição, limitando e ordenando isso, como todos os pecados deles, para a sua própria glória; e estabeleceu os mais em santidade e felicidade, empregando-os todos, conforme lhe apraz, na administração do seu poder, misericórdia e justiça.
 
-Judas 6; Luc. 10:17; Mar. 8:38; 1 Tim. 5:21; Heb. 12:22; Sal. 103:20; Heb. 1:14.
+`Judas 6; Luc. 10:17; Mar. 8:38; 1 Tim. 5:21; Heb. 12:22; Sal. 103:20; Heb. 1:14.`
 
 ----
-20. Qual foi a providência de Deus para com o homem no estado em que ele foi criado?
+## 20. Qual foi a providência de Deus para com o homem no estado em que ele foi criado?
 
 A providência de Deus para com o homem no estado em que ele foi criado consistiu em colocá-lo no Paraíso, designando-o para o cultivar, dando-lhe liberdade para comer do fruto da terra; pondo as criaturas sob o seu domínio; e ordenando o matrimônio para o seu auxílio; em conceder-lhe comunhão com Deus, instituindo o dia de descanso, entrando em um pacto de vida com ele, sob a condição de obediência pessoal, perfeita e perpetua, da qual a árvore da vida era um penhor, e proibindo-lhe comer da árvore da ciência do bem e do mal sob pena de morte.
 
-Gen. 1:28, e 21:15-16, e 1:26, e 3:8, e 2:3, Exo. 20:11; Gal. 3:12; Gen. 2:9, 16-17.
+`Gen. 1:28, e 21:15-16, e 1:26, e 3:8, e 2:3, Exo. 20:11; Gal. 3:12; Gen. 2:9, 16-17.`
 
 ---
-21. Continuou o homem no estado em que Deus o criou no princípio?
+## 21. Continuou o homem no estado em que Deus o criou no princípio?
 
 Nossos primeiros pais, sendo deixados à liberdade da sua própria vontade, pela tentação de Satanás transgrediram o mandamento de Deus, comendo do fruto proibido, e por isso caíram do estado de inocência em que foram criados.
 
-Gen. 3:6-8, 13.
+`Gen. 3:6-8, 13.`
 
 ---
-22. Caiu todo o gênero humano na primeira transgressão?
+## 22. Caiu todo o gênero humano na primeira transgressão?
 
 O pacto sendo feito com Adão, como representante, não para si somente, mas para toda a sua posteridade, todo o gênero humano, descendendo dele por geração ordinária, pecou nele e caiu com ele na primeira transgressão.
 
-At. 17:26; Gen. 2:17.
+`At. 17:26; Gen. 2:17.`
 
 ---
-23. A que estado ficou reduzido o gênero humano por essa queda?
+## 23. A que estado ficou reduzido o gênero humano por essa queda?
 
 Essa queda reduziu o gênero humano a um estado de pecado e miséria.
 
-Rom. 5:12; Gal. 3:10.
+`Rom. 5:12; Gal. 3:10.`
 
 ---
-24. Que é pecado?
+## 24. Que é pecado?
 
 Pecado é qualquer falta de conformidade com a lei de Deus, ou a transgressão de qualquer lei por Ele dada como regra, à criatura racional.
 
-Rom. 3:23; 1 João 3:4; Gal. 3:10-12.
+`Rom. 3:23; 1 João 3:4; Gal. 3:10-12.`
 
 ---
 25. Em que consiste o pecado desse estado em que o homem caiu?
@@ -583,18 +582,32 @@ A Igreja visível tem o privilégio de estar sob o cuidado e governo especial de
 Isa. 4:5-6; Mat. 16:18; At. 2:42; Sal. 147:19-20; Ef. 4:11-12; Rom. 8:9; João 6:37.
 
 
-64. Que é a Igreja invisível?
+## 64. Que é a Igreja invisível?
 
 A Igreja invisível é o número completo dos eleitos, que têm sido e que hão de ser reunidos em um corpo sob Cristo, a cabeça.
 
-Ef. 1:10; 22-23; João 11:52 e 10:16.
+`Ef. 1:10; 22-23; João 11:52 e 10:16.`
 
+> **Efésios 1:10** <br>
+> ¹⁰ De tornar a congregar em Cristo todas as coisas, na dispensação da plenitude dos tempos, tanto as que estão nos céus como as que estão na terra;
+>
+> **João 11:52**
+> ⁵² E não somente pela nação, mas também para reunir em um corpo os filhos de Deus que andavam dispersos.
+>
+> **João 10:16**
+>¹⁶ Ainda tenho outras ovelhas que não são deste aprisco; também me convém agregar estas, e elas ouvirão a minha voz, e haverá um rebanho e um Pastor.
 
-65. Quais são os benefícios especiais de que gozam por Cristo os membros da Igreja invisível?
+## 65. Quais são os benefícios especiais de que gozam por Cristo os membros da Igreja invisível?
 
 Os membros da igreja invisível gozam por Cristo da união e comunhão com Ele em graça e gloria.
 
-João 17:21, 24; 1 João 1:3.
+`João 17:21, 24; 1 João 1:3.`
+
+> **João 17:21** <br>
+>²¹ Para que todos sejam um, como tu, ó Pai, o és em mim, e eu em ti; que também eles sejam um em nós, para que o mundo creia que tu me enviaste.
+>
+> **1 João 1:3**
+>³ O que vimos e ouvimos, isso vos anunciamos, para que também tenhais comunhão conosco; e a nossa comunhão é com o Pai, e com seu Filho Jesus Cristo.
 
 
 66. Qual é a união que os eleitos têm com Cristo?
@@ -625,44 +638,73 @@ A comunhão em graça que os membros da Igreja invisível têm com Cristo é a p
 Rom. 8:30; Ef. 1:5; 1 Cor. 1:30.
 
 
-70. Que é justificação?
+## 70. Que é justificação?
 
 Justificação é um ato da livre graça de Deus para com os pecadores, no qual Ele os perdoa, aceita e considera justas as suas pessoas diante dEle, não por qualquer coisa neles operada, nem por eles feita mas unicamente pela perfeita obediência e plena satisfação de Cristo, a eles imputadas por Deus e recebidas só pela fé.
 
-Rom. 3:22-25, e 4:5; 11 Cor. 5:19, 21; Ef. 1:6-7; Rom, 3:24, 25, 28, e 5:17-19, e 4:6-8, e 5:1; At. 10:43.
+`Rom. 3:22-25, e 4:5; 11 Cor. 5:19, 21; Ef. 1:6-7; Rom, 3:24, 25, 28, e 5:17-19, e 4:6-8, e 5:1; At. 10:43.`
 
 
-71. Como é a justificação um ato da livre graça de Deus?
+## 71. Como é a justificação um ato da livre graça de Deus?
 
 Ainda que Cristo, pela sua obediência e morte, prestasse uma verdadeira satisfação real e plena à justiça de Deus a favor dos que são justificados, contudo a sua justificação é de livre graça para eles desde que Deus aceita a satisfação de um fiador, a qual podia ter exigido deles; e proveu este fiador,
 
 Seu único Filho, imputando-lhes a justiça deste e não exigindo deles nada para a sua justificação senão a fé, a qual também é dom de Deus.
 
-Mat. 20:28; Rom. 5:8-10, 19; 1 Tim. 2:5-6; Isa. 53:5-6; Heb. 7:22; Rom. 8:32; 11 Cor. 5:21; Rom. 3:25; Ef. 2:8, e 1:7.
+`Mat. 20:28; Rom. 5:8-10, 19; 1 Tim. 2:5-6; Isa. 53:5-6; Heb. 7:22; Rom. 8:32; 11 Cor. 5:21; Rom. 3:25; Ef. 2:8, e 1:7.`
 
 
-72. Que é a fé justificadora?
+## 72. Que é a fé justificadora?
 
 A fé justificadora é a que salva. É operada .pelo Espírito e pela Palavra de Deus no coração do pecador que, sendo por eles convencido do seu pecado e miséria e da sua incapacidade, e das demais criaturas, para o restaurar desse estado, não somente aceita a verdade da promessa do Evangelho, mas recebe e confia em Cristo e na sua justiça, que lhe são oferecidos no Evangelho, para o perdão de pecados e para que a sua pessoa seja aceita e reputada justa diante de Deus para a salvação.
 
-Heb. 10:39; 1 Cor, 12:3, 9; Rom. 10:14, 17; João 16:8-9; At. 16:30; Ef. 1:13; Ef. 10:43; Fil. 3.9; At. 15:11.
+`Heb. 10:39; 1 Cor, 12:3, 9; Rom. 10:14, 17; João 16:8-9; At. 16:30; Ef. 1:13; Ef. 10:43; Fil. 3.9; At. 15:11.`
 
 
-73. Como justifica a fé o pecador diante de Deus?
+## 73. Como justifica a fé o pecador diante de Deus?
 
 A fé justifica o pecador diante de Deus, não por causa das outras graças que sempre a acompanham, nem por causa das boas obras que são os frutos dela, nem como se fosse a graça da fé, ou qualquer ato dela, que lhe é imputado para a justificação; mas unicamente porque a fé é o instrumento pelo qual o pecador recebe e aplica a si Cristo e a sua justiça.
 
-Rel. Gal. 3:11; Rom. 3:28, e 4:5; João 1:12; Gal2:16.
+`Rel. Gal. 3:11; Rom. 3:28, e 4:5; João 1:12; Gal2:16.`
 
 
-74. Que é adoção?
+## 74. Que é adoção?
 
 Adoção é um ato da livre graça de Deus, em seu único Filho Jesus Cristo e por amor dEle, pelo qual todos os que são justificados são recebidos no número dos filhos de Deus, trazem o seu nome, recebem o Espírito do Filho, estão sob o seu cuidado e dispensações paternais, são admitidos a todas as liberdades e privilégios dos filhos de Deus, feitos herdeiros de todas as promessas e co-herdeiros com Cristo na glória.
 
-1 João 3:1; Ef. 1:5; Gal. 4:4-5: João 1:12; II Cor. 6:18; Apoc. 3:12; Gal. 4:6; Sal. 103:13; Mat. 6:32; Rom. 8:17.
+`1 João 3:1; Ef. 1:5; Gal. 4:4-5: João 1:12; II Cor. 6:18; Apoc. 3:12; Gal. 4:6; Sal. 103:13; Mat. 6:32; Rom. 8:17.`
 
+> **1 João 3:1** <br>
+> ¹ Vede quão grande amor nos tem concedido o Pai, que fôssemos chamados filhos de Deus. Por isso o mundo não nos conhece; porque não o conhece a ele.
+>
+> **Efésios 1:5** <br>
+> ⁵ E nos predestinou para filhos de adoção por Jesus Cristo, para si mesmo, segundo o beneplácito de sua vontade,
+>
+> **Gálatas 4:4,5** <br>
+>⁴ Mas, vindo a plenitude dos tempos, Deus enviou seu Filho, nascido de mulher, nascido sob a lei,
+>⁵ Para remir os que estavam debaixo da lei, a fim de recebermos a adoção de filhos.
+>
+> **João 1:12** <br>
+> ¹² Mas, a todos quantos o receberam, deu-lhes o poder de serem feitos filhos de Deus, aos que creem no seu nome;
+>
+> **2 Coríntios 6:18** <br>
+> ¹⁸ E eu serei para vós Pai, e vós sereis para mim filhos e filhas, diz o Senhor Todo-Poderoso.
+>
+> **Apocalipse 3:12** <br>
+> ¹² A quem vencer, eu o farei coluna no templo do meu Deus, e dele nunca sairá; e escreverei sobre ele o nome do meu Deus, e o nome da cidade do meu Deus, a nova Jerusalém, que desce do céu, do meu Deus, e também o meu novo nome.
+>
+> **Gálatas 4:6** <br>
+> ⁶ E, porque sois filhos, Deus enviou aos vossos corações o Espírito de seu Filho, que clama: Aba, Pai.
+>
+> **Salmos 103:13** <br>
+> ¹³ Assim como um pai se compadece de seus filhos, assim o Senhor se compadece daqueles que o temem.
+>
+> **Mateus 6:32** <br>
+> ³² Porque todas estas coisas os gentios procuram. Decerto vosso Pai celestial bem sabe que necessitais de todas estas coisas;
+> **Romanos 8:17** <br>
+> ¹⁷ E, se nós somos filhos, somos logo herdeiros também, verdadeiramente herdeiros de Deus, e co-herdeiros de Cristo: se é certo que com ele padecemos, para que também com ele sejamos glorificados.
 
-75. Que é santificação?
+## 75. Que é santificação?
 
 Santificação é a obra da graça de Deus, pela qual os que Deus escolheu, antes da fundação do mundo, para serem santos, são nesta vida, pela poderosa operação do seu Espírito, aplicando a morte e a ressurreição de Cristo, renovados no homem interior, segundo a imagem de Deus, tendo os germes do arrependimento que conduz à vida e de todas as outras graças salvadoras implantadas em seus corações, e tendo essas graças de tal forma excitadas, aumentadas e fortalecidas, que eles morrem, cada vez mais para o pecado e ressuscitam para novidade de vida.
 
@@ -1302,7 +1344,7 @@ A conclusão da Oração do Senhor, que é: “Porque teu é o reino e o poder e
 I Cr 29:10-13; Jó 23:3,4; Jr 14:20,21; Dn 9:4,7-9; Mt 6:13; Fp 4:6; Ef 3:12,20,21; Lc 11:13; Hb 10:19-22; I Jo 5:14; Rm 8:32; I Co 14:16; Ap 22:20,21.
 
 
-
+# FONTE:
 http://www.monergismo.com/
 
 Este site da web é uma realização de
