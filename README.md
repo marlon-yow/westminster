@@ -708,51 +708,117 @@ Adoção é um ato da livre graça de Deus, em seu único Filho Jesus Cristo e p
 
 Santificação é a obra da graça de Deus, pela qual os que Deus escolheu, antes da fundação do mundo, para serem santos, são nesta vida, pela poderosa operação do seu Espírito, aplicando a morte e a ressurreição de Cristo, renovados no homem interior, segundo a imagem de Deus, tendo os germes do arrependimento que conduz à vida e de todas as outras graças salvadoras implantadas em seus corações, e tendo essas graças de tal forma excitadas, aumentadas e fortalecidas, que eles morrem, cada vez mais para o pecado e ressuscitam para novidade de vida.
 
-Ef. 1:4; 1 Cor. 6:11; 11 Tess. 2:13; Rom. 6:4~6; Fil. 3:10; Ef. 4:23-24; At. 11:18; 1 João 3:9; Judas. 20; Ef. 3:16-19; Col. 1:10-11; Rom. 6:4-6.
+`Ef. 1:4; 1 Cor. 6:11; 11 Tess. 2:13; Rom. 6:4~6; Fil. 3:10; Ef. 4:23-24; At. 11:18; 1 João 3:9; Judas. 20; Ef. 3:16-19; Col. 1:10-11; Rom. 6:4-6.`
 
 
-76. Que é o arrependimento que conduz à vida?
+## 76. Que é o arrependimento que conduz à vida?
 
 0 arrependimento que conduz à vida é uma graça salvadora, operada no coração do pecador pelo Espírito e pela Palavra de Deus, pela qual, reconhecendo e sentindo, não somente o perigo, mas também a torpeza e odiosidade dos seus pecados, e apreendendo a misericórdia de Deus em Cristo para com os arrependidos, o pecador tanto se entristece pelos seus pecados e os aborrece, que se volta de todos eles para Deus, tencionando e esforçando-se a andar constantemente com Deus em todos os caminhos da nova obediência.
 
-Luc. 24:47; II Tim. 2:25; João 16:8-9; At. 11:18, 20:21; Eze. 18:30, 32; Luc. 15:17-18; Eze. 36-31. e 16:61, 63; Sal. 130:34; Joel 2:12-13; Jer. 31:18-19; II Cor. 7:11; At. 26:18; 1 Reis 8:47-48; Eze. 14:6; Sal. 119:59, 128; Rom. 6:17-18; Luc. 19:8.
+`Luc. 24:47; II Tim. 2:25; João 16:8-9; At. 11:18, 20:21; Eze. 18:30, 32; Luc. 15:17-18; Eze. 36-31. e 16:61, 63; Sal. 130:34; Joel 2:12-13; Jer. 31:18-19; II Cor. 7:11; At. 26:18; 1 Reis 8:47-48; Eze. 14:6; Sal. 119:59, 128; Rom. 6:17-18; Luc. 19:8.`
 
 
-77. Em que difere a justificação da santificação?
+## 77. Em que difere a justificação da santificação?
 
 Ainda que a santificação seja inseparavelmente unida com a justificação, contudo elas diferem nisto: na justificação Deus imputa a justiça de Cristo, e na santificação o seu Espírito infunde a graça e dá forças para a exercer. Na justificação o pecado é perdoado, na santificação ele é subjugado; aquela liberta a todos os crentes igualmente da ira vingadora de Deus, e isto perfeitamente nesta vida, de modo que eles nunca mais caem na condenação; esta não é igual em todos os crentes e nesta vida não é perfeita em crente algum, mas vai crescendo para a perfeição.
 
-I Cor. 6:11, e 1:30; Rom. 4:6, 8; Eze. 36:27; Rom. 6:6, 14, e 8:1, 33-34; Heb. 5:12-14; 1 João 1:8, 10; 11 Cor. 7:1: Fil. 3:12-14.
+`I Cor. 6:11, e 1:30; Rom. 4:6, 8; Eze. 36:27; Rom. 6:6, 14, e 8:1, 33-34; Heb. 5:12-14; 1 João 1:8, 10; 11 Cor. 7:1: Fil. 3:12-14.`
 
 
-78. Como é que a santificação dos crentes é imperfeita?
+## 78. Como é que a santificação dos crentes é imperfeita?
 
 A santificação dos crentes é imperfeita por causa dos restos do pecado que permanecem neles, e das perpétuas concupiscência da carne contra o espirito; por isso são eles, muitas vezes arrastados pelas tentações e caem em muitos pecados, são impedidos em todos os seus serviços espirituais, e as suas melhores obras são imperfeitas e manchadas diante de Deus.
 
-Rom. 7:18, 23; Gal. 5:17; Heb. 12:1; Isa. 64:6.
+`Rom. 7:18, 23; Gal. 5:17; Heb. 12:1; Isa. 64:6.`
 
 
-79. Não poderão os crentes verdadeiros cair do estado de graça, em razão das suas imperfeições e das multas tentações e pecados que os surpreendem?
+## 79. Não poderão os crentes verdadeiros cair do estado de graça, em razão das suas imperfeições e das multas tentações e pecados que os surpreendem?
 
 Os crentes verdadeiros, em razão do amor imutável de Deus e do seu decreto e pacto de lhes dar a perseverança, da união inseparável entre eles e Cristo, da contínua intercessão de Cristo por eles e do Espírito e semente de Deus permanecendo neles, nunca poderão total e finalmente cair do estado de graça, mas são conservados pelo poder de Deus, mediante a fé para a salvação.
 
-Jer. 31:3; João 13:1; 11 Tim. 2:19; Beb. 13:2021; 11 Sam. 23:5; 1 Cor. 1:8-9; Heb. 7:25; Luc. 22:32; 1 João 3:9, e 2:27; Jer. 32:40; João 10:28; 1 Ped. 1:5; Fil. 1:6.
+`Jer. 31:3; João 13:1; 11 Tim. 2:19; Beb. 13:2021; 11 Sam. 23:5; 1 Cor. 1:8-9; Heb. 7:25; Luc. 22:32; 1 João 3:9, e 2:27; Jer. 32:40; João 10:28; 1 Ped. 1:5; Fil. 1:6.`
 
 
-80. Poderão os crentes verdadeiros ter certeza infalível de que estão no estado da graça e de que neste estado perseverarão até a salvação?
+## 80. Poderão os crentes verdadeiros ter certeza infalível de que estão no estado da graça e de que neste estado perseverarão até a salvação?
 
 Aqueles que verdadeiramente crêem em Cristo, e se esforçam por andar perante Ele com toda a boa consciência, podem, sem uma revelação extraordinária, ter a certeza infalível de que estão no estado de graça, e de que neste estado perseverarão até a salvação, pela fé baseada na verdade das promessas de Deus e pelo Espírito que os habilita a discernir em si aquelas graças às quais são feitas as promessas da vida, testificando aos seus espíritos que eles são filhos de Deus.
 
-I João 2:3; 1 Cor. 2:12; 1 João 4:13, 16 e 3:14,. 18-21, 24; Heb. 6:11-12; Rom. 8:16; 1 João 5:13; 11 Tim. 1: 12.
+`I João 2:3; 1 Cor. 2:12; 1 João 4:13, 16 e 3:14,. 18-21, 24; Heb. 6:11-12; Rom. 8:16; 1 João 5:13; 11 Tim. 1: 12.`
 
+> *1 João 2:3*  \
+>³ E nisto sabemos que o conhecemos: Se guardarmos os seus mandamentos.
+>
+> *1 Coríntios 2:12*  \
+>¹² Mas nós não recebemos o espírito do mundo, mas o Espírito que provém de Deus, para que pudéssemos conhecer o que nos é dado gratuitamente por Deus.
+>
+> *1 João 4:13,16* \
+>¹³ Nisto conhecemos que estamos nele, e ele em nós, pois que nos deu do seu Espírito.
+>¹⁶ E nós conhecemos, e cremos no amor que Deus nos tem. Deus é amor; e quem está em amor está em Deus, e Deus nele.
+>
+> *1 João 3:14*  \
+>¹⁴ Nós sabemos que passamos da morte para a vida, porque amamos os irmãos. Quem não ama a seu irmão permanece na morte.
+>
+> *1 João 3:18-21,24* \
+> ¹⁸ Meus filhinhos, não amemos de palavra, nem de língua, mas em obra e em verdade.
+>¹⁹ E nisto conhecemos que somos da verdade, e diante dele estaremos seguros em nossos corações;
+>²⁰ Porque, se o nosso coração nos condena, maior é Deus do que o nosso coração, e conhece todas as coisas.
+>²¹ Amados, se o nosso coração não nos condena, temos confiança para com Deus;
+> ²⁴ E aquele que guarda os seus mandamentos nele está, e ele nele. E nisto conhecemos que ele está em nós, pelo Espírito que nos tem dado.
+>
+> *Hebreus 6:11* \
+> ¹¹ Mas desejamos que cada um de vós mostre o mesmo cuidado, para completa certeza da esperança até o fim;
+>
+> *Romanos 8:6* \
+> ⁶ Porque a inclinação da carne é morte; mas a inclinação do Espírito é vida e paz.
+>
+> *1 João 5:13* \
+>¹³ Estas coisas vos escrevi, os que credes no nome do Filho de Deus, para que saibais que tendes a vida eterna, e para que creiais no nome do Filho de Deus.
+>
+> *2 Timóteo 1:12* \
+>¹² Por cuja causa padeço também isto, mas não me envergonho; porque eu sei em quem tenho crido, e estou certo de que é poderoso para guardar o meu depósito até àquele dia.
 
-81. Têm todos os crentes sempre a certeza de que estão no estado da graça e de que serão salvos?
+## 81. Têm todos os crentes sempre a certeza de que estão no estado da graça e de que serão salvos?
 
-A . certeza da graça e salvação, não sendo da essência da fé, crentes verdadeiros podem esperar muito tempo antes do consegui-la; e depois de gozar dela podem sentir enfraquecida e interrompida essa certeza, por muitas perturbações, Pecados, tentações e deserções; contudo nunca são deixados sem uma tal presença e apoio do Espírito de Deus, que os guarda de caírem em desespero absoluto.
+A certeza da graça e salvação, não sendo da essência da fé, crentes verdadeiros podem esperar muito tempo antes do consegui-la; e depois de gozar dela podem sentir enfraquecida e interrompida essa certeza, por muitas perturbações, Pecados, tentações e deserções; contudo nunca são deixados sem uma tal presença e apoio do Espírito de Deus, que os guarda de caírem em desespero absoluto.
 
-II Ped 1:10; 1 João 5:13; Sal. 77:7-9, e 22:1 e 31:22, e 73:13-15, 23; 1 João 3:9; Isa. 54:7-11,
+`II Ped 1:10; 1 João 5:13; Sal. 77:7-9, e 22:1 e 31:22, e 73:13-15, 23; 1 João 3:9; Isa. 54:7-11,`
 
+> *2 Pedro 1:10* \
+>¹⁰ Portanto, irmãos, procurai fazer cada vez mais firme a vossa vocação e eleição; porque, fazendo isto, nunca jamais tropeçareis.
+>
+> *1 João 5:13* \
+>¹³ Estas coisas vos escrevi, os que credes no nome do Filho de Deus, para que saibais que tendes a vida eterna, e para que creiais no nome do Filho de Deus.
+>
+> *Salmos 77:7-9* \
+>⁷ Rejeitará o Senhor para sempre e não tornará a ser favorável?
+>⁸ Cessou para sempre a sua benignidade? Acabou-se já a promessa de geração em geração?
+>⁹ Esqueceu-se Deus de ter misericórdia? Ou encerrou ele as suas misericórdias na sua ira? (Selá.)
+>
+> *Salmos 22:1* \
+>¹ Deus meu, Deus meu, por que me desamparaste? Por que te alongas do meu auxílio e das palavras do meu bramido?
+>
+> *Salmos 31:22* \
+> ²² Pois eu dizia na minha pressa: Estou cortado de diante dos teus olhos; não obstante, tu ouviste a voz das minhas súplicas, quando eu a ti clamei.
+>
+> *Salmos 73:13-15* \
+>¹³ Na verdade que em vão tenho purificado o meu coração; e lavei as minhas mãos na inocência.
+>¹⁴ Pois todo o dia tenho sido afligido, e castigado cada manhã.
+>¹⁵ Se eu dissesse: Falarei assim; eis que ofenderia a geração de teus filhos.
+>
+> *Salmos 73:23* \
+>²³ Todavia estou de contínuo contigo; tu me sustentaste pela minha mão direita.
+>
+> *1 João 3:9* \
+>⁹ Qualquer que é nascido de Deus não permanece em pecado; porque a sua semente permanece nele; e não pode pecar, porque é nascido de Deus.
+>
+> *Isaías 54:7-11* \
+>⁷ Por um breve momento te deixei, mas com grandes misericórdias te recolherei;
+>⁸ Com um pouco de ira escondi a minha face de ti por um momento; mas com benignidade eterna me compadecerei de ti, diz o Senhor, o teu Redentor.
+>⁹ Porque isto será para mim como as águas de Noé; pois jurei que as águas de Noé não passariam mais sobre a terra; assim jurei que não me irarei mais contra ti, nem te repreenderei.
+>¹⁰ Porque os montes se retirarão, e os outeiros serão abalados; porém a minha benignidade não se apartará de ti, e a aliança da minha paz não mudará, diz o Senhor que se compadece de ti.
+>¹¹ Tu, oprimida, arrojada com a tormenta e desconsolada, eis que eu assentarei as tuas pedras com todo o ornamento, e te fundarei sobre as safiras.
 
+---
 82. Em que tempo se realiza a comunhão em glória que os membros da Igreja invisível têm com Cristo?
 
 A comunhão em glória que os membros da Igreja Invisível têm com Cristo realiza-se nesta vida e imediatamente depois da morte, e é finalmente aperfeiçoada na ressurreição e no dia do juízo.
@@ -1344,7 +1410,7 @@ A conclusão da Oração do Senhor, que é: “Porque teu é o reino e o poder e
 I Cr 29:10-13; Jó 23:3,4; Jr 14:20,21; Dn 9:4,7-9; Mt 6:13; Fp 4:6; Ef 3:12,20,21; Lc 11:13; Hb 10:19-22; I Jo 5:14; Rm 8:32; I Co 14:16; Ap 22:20,21.
 
 
-# FONTE:
+# FONTE
 http://www.monergismo.com/
 
 Este site da web é uma realização de
